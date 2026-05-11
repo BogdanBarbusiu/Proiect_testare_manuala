@@ -1,1 +1,1 @@
-# Proiect_testare_manuala
+# prezentarea proiectului
